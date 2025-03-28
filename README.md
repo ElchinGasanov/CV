@@ -8,3 +8,8 @@ CV
 [1С_Профессионал_ Розница 8_ПРоз83850..pdf](https://github.com/user-attachments/files/19506034/1._._.8_.83850.pdf)
 
 [1С_Профессионал_ Управление торговлей 8_ПУТ88045236..pdf](https://github.com/user-attachments/files/19506035/1._._.8_.88045236.pdf)
+
+[JUNIOR DEVELOPER.pdf](https://github.com/user-attachments/files/19506110/JUNIOR.DEVELOPER.pdf)
+
+[Senoor developer.pdf]
+(https://github.com/user-attachments/files/19506116/Senoor.developer.pdf)
