@@ -12,3 +12,5 @@ CV
 [JUNIOR DEVELOPER.pdf](https://github.com/user-attachments/files/19506110/JUNIOR.DEVELOPER.pdf)
 
 [Senoor developer.pdf](https://github.com/user-attachments/files/19506116/Senoor.developer.pdf)
+
+![Senoor developer_1](https://github.com/user-attachments/assets/bb52492e-ec33-40a2-84c1-f92a03fba6d0)
